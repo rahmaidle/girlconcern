@@ -1,2 +1,1 @@
-# girlconcern
-Hello
+# WELCOME TO GIRLCONCERN.ORG 🎉
